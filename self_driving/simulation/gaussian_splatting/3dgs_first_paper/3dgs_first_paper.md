@@ -1,3 +1,0 @@
-# 3DGS First Paper
-
-
